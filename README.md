@@ -15,8 +15,7 @@ I think part of the reason I wanted to leave this here is for myself too. Someth
 
 If you somehow found your way here, then this is what I wrote the day after our story ended.
 
-
-If you ever somehow find this one day, I hope enough time has passed for you to read it with a smile rather than sadness.
+{{If you ever somehow find this one day, I hope enough time has passed for you to read it with a smile rather than sadness.
 
 Today is the day after we ended things. It’s November 6th, nine days before one of the most important exams of my life, and if I’m being completely truthful, my focus is almost nonexistent right now.
 
@@ -68,7 +67,7 @@ So if you ever find this months or years from now, there’s nothing you need to
 
 It’s just something I wanted to leave behind for the person who, for a short time, meant much more to me than she probably realized.
 I genuinely wish you the best in whatever life you ended up building.
-May life be gentle with you, Khaleesi.
+May life be gentle with you, Khaleesi.❤️}}
 
 
 P.S. I wrote all of this the day after everything ended. I think I just needed somewhere to put my feelings so my head could become a little quieter and I could somehow focus on my exam again.
