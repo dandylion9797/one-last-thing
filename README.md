@@ -69,6 +69,8 @@ So if you ever find this months or years from now, there’s nothing you need to
 It’s just something I wanted to leave behind for the person who, for a short time, meant much more to me than she probably realized.
 I genuinely wish you the best in whatever life you ended up building.
 May life be gentle with you, Khaleesi.
+
+
 P.S. I wrote all of this the day after everything ended. I think I just needed somewhere to put my feelings so my head could become a little quieter and I could somehow focus on my exam again.
 Sadly, I can’t even add this to the game properly from my phone right now, so maybe I’ll put it there when I get home.
 I genuinely have no idea if you’ll ever find this message.
